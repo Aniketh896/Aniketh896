@@ -6,7 +6,7 @@
 
 ### Software Engineer and Web Developer
 
-#### Final Year B.Tech (CSE) UnderGrad Student  
+#### Bachelor's in CSE - 2022 Grad
 
 * 🌍  I'm based in Bengaluru, India 
 * ✉️  You can contact me at [aniketh.hotagi@gmail.com](mailto:aniketh.hotagi@gmail.com) 
